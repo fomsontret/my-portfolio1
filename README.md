@@ -20,3 +20,5 @@
 4. Программирование
 
 #### Моё фото
+![c802d4a1ae6338ce10917cedbbe57bd4](https://github.com/user-attachments/assets/4fd5e726-7944-4e6f-abf2-4e358060ff80)
+
